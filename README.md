@@ -1,7 +1,7 @@
 - LEO :3
 - I use he/him ⭐!
 - I have ADHD 🌙
-- more stuff in my rentry!🍮^^ [im trying to make a card 💔]
+- I need to make a rentry..[im trying to make a card 💔]
 - [this is for pt ☀️]
 
 <!---
